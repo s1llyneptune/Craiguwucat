@@ -1,1 +1,1 @@
-https://pin.it/6csQinNzV
+(https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=3C5EA2&background=FFFFFF&random=true&width=435&lines=%E2%80%98+Venus+of+beauty+is+destroy..%E2%80%99;I+love+my+husband%2Fwifey..;*DNI+THAT+ONE+PERSON+WHO+BETRAYED+ME.*;I+love+my+husband)](https://git.io/typing-svg)
